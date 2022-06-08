@@ -1,4 +1,2 @@
-👋이믈희
-studying spine
-@meul.hee on instagram, twitter 
+spine 공부 기록중
  
